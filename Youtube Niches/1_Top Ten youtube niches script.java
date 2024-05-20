@@ -167,9 +167,10 @@ This script is designed to be engaging, educational, and to keep viewers excited
 
 
 
+acknowlages
 
-
-
+Photo by cottonbro studio: https://www.pexels.com/photo/loading-a-video-on-a-smartphone-5081404/
+Video by Ivan Samkov: https://www.pexels.com/video/man-watching-online-yoga-lessons-6447692/
 
 
 
