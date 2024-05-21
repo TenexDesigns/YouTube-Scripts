@@ -27,4 +27,10 @@ what you put on the title and thumb nails, must also be in the intro ttoo, to ke
   the more you study the algoerhm, the more you realize you are tuduyng the human psycollgy and how they ract to diifent videos and titles and content and hwta humans want to watch.
   not the algorthm diditn like that video, its the audience diidnt like that video,
   the algoerhm relects what the peopel want.
+
+
+
+
+
+  voice over text shorts ------11
   
