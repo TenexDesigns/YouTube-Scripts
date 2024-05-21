@@ -129,7 +129,40 @@
 
 
 
+----------------------
 
+  ##  YouTube Video Details for "Queens by Right"
+
+**Title:** Queens by Right: 10 Truths to Unleash Your Inner Power  **(Keywords: Women Empowerment, Self-Confidence, Inspiration)**
+
+**Description:**  Calling all Queens!  Feeling lost or underestimated? This video is your royal decree of self-worth.  We're dropping 10 empowering truths to help you claim your power, nurture your spirit, and rise like the magnificent being you are.    Join the conversation and share your journey in the comments! 
+
+**#Tags:** #womenempowerment #selflove #confidence #motivation #inspiration #girlboss #womensupportingwomen #strength #vulnerability #selfcare  
+
+**End Screen Elements:**
+
+* **Subscribe:** Encourage viewers to subscribe for more inspiring content.
+* **Link to Another Video:** Link to a relevant video, perhaps one that dives deeper into a specific truth from the top 10.
+* **Call to Action:**  Ask viewers to share the video with their queens and use the #QueensByRight hashtag. 
+
+**Thumbnail Image:**
+
+* A captivating image that reflects the video's theme.  Here are some ideas:
+    * A woman confidently striding forward, bathed in golden light.
+    * A diverse group of women celebrating together, symbolizing sisterhood. 
+    * A collage of powerful words like "strength," "worthy," and "queen."
+
+**Music:**
+
+* Uplifting and empowering music throughout the video that complements the message. 
+
+**Additional Tips:**
+
+* Throughout the video, consider incorporating visuals that reinforce the spoken word.  Use royalty-free images, video clips, or even animation to keep the audience engaged. 
+* Add captions or subtitles to make the video accessible to a wider audience.
+* Encourage audience interaction by responding to comments and fostering a supportive community in the comments section.
+
+  -----------------------
 
 
 
@@ -171,6 +204,46 @@ Use this catchy title and description to capture your audience's attention and i
 
   
 
+
+
+  Queens by Right: Unleash Your Inner Power by George's Workspace
+
+OUTLINE:
+00:00:00
+The Call to Power
+
+00:00:19
+Your Worth is Intrinsic
+
+00:00:36
+Embrace Your Soft Power
+
+00:00:52
+Vulnerability is Your Superpower
+
+00:01:10
+Your Voice Matters
+
+00:01:25
+Know Your Tribe
+
+00:01:41
+Self-Care is Not Selfish
+
+00:01:57
+Set Boundaries Like a Boss
+
+00:02:12
+Embrace the Journey, Not Just the Destination
+
+00:02:25
+Forgive Yourself, Forgive Others
+
+00:02:39
+You Are Unstoppable
+
+00:02:56
+Conclusion
 
 
 
