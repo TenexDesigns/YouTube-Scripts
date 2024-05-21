@@ -133,4 +133,27 @@
 
 
 
+  The Modern Man's Playbook: 10 Essentials for Thriving in Today's World by George's Workspace
+
+OUTLINE: 
+
+00:00:00 A Call to Greatness
+00:00:35 The Foundation of Self-Respect
+00:01:06 The Neverending Pursuit of Knowledge
+00:01:43 The Temple of the Body
+00:02:21 Mastering the Realm of Emotions
+00:03:01 Building a Solid Foundation
+00:03:35 Igniting Your Passions
+00:04:16 Cultivating Authentic Relationships
+00:04:55 Overcoming Adversity
+00:05:35 Living an Honorable Life
+00:06:18 Embracing Life's Fullness
+00:06:57 Rise to the Challenge
+
+
+
+  
+
+
+
   
