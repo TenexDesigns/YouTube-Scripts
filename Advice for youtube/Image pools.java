@@ -21,4 +21,20 @@ give usess 4 options
 
 
   incude capital laters
+
+
+  outro should be puch and 
+
+
+
+  i need retention in my videos , they should be enagaing from start to endI nend hooks in my videos that kee the viewr watching from the vry strat to the end
+
+
+
+  --------------
+
+
+  shorts should be 15- 20 seconds long
+  
+  
   
