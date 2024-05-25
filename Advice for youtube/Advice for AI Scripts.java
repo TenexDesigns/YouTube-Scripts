@@ -49,7 +49,8 @@ what you put on the title and thumb nails, must also be in the intro ttoo, to ke
    - Suggest related videos for viewers to watch next, enhancing engagement and channel growth.
 
 
-
+ never understimat community enegament, -ask questions to receive enegamenent- this creates a loyal abideoence and also sends signals to youtube
+  youchannel  is crating a convesation whicj boosts your chananle
 
 
 
@@ -209,5 +210,8 @@ what you put on the title and thumb nails, must also be in the intro ttoo, to ke
   - Ask viewers to subscribe organically within the content flow, rather than as a forced plea.
 
   - Suggest related videos for viewers to watch next, enhancing engagement and channel growth.
+  
+   never understimat community enegament, -ask questions to receive enegamenent- this creates a loyal abideoence and also sends signals to youtube
+  youchannel  is crating a convesation whicj boosts your chananle
 
 "
