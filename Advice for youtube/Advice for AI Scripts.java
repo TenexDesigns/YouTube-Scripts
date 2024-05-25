@@ -2,7 +2,18 @@ things to develop firt
   - title
   - thumbnail
   
+--- the title should create  curiocituy-
+  optimiz title for search
+  50 to 60 charateters, beacuse youtube cut characters at 64
+  the title shoudl drwa attention and clearly coomunuiactes the value of your video
+  it should contain keywods , viewwers are searching for
+  title, when sombody reads it, do they have to watch that video, is sit soo intresting that they have to watch it.-- below 50 characters- shart simple and intereting.
+  The title and thumb nails should be in the first 5 seconds so that peopel feel that what they clicked on is what they are getting
+what you put on the title and thumb nails, must also be in the intro ttoo, to keeeppeopel watching., deliever the conten and feeling in the first five seconds, pacing mood style 
+  Swithc the cammera evevry 4 seconds to retain visual attaentions, Provide the problem , and hten preent the solutiions
 
+
+  
 - **Craft a Strong Hook**: Develop a compelling "hover hook" within the first 10 seconds of your video.
   This should appeal to your target audience and entice them to continue watching.
 
