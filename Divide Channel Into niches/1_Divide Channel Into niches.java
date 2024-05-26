@@ -1,6 +1,6 @@
 TenexDesigns - ASMR motivation Motivation and improvemnet, and asmr motivation, 
   TenexDesigns - Pets
-  TenexDesigns - Movies and Series  ---  discuss celebritis, musicans and actors, thei back stories and 
+  TenexDesigns - Shorts channel- and parodies -- and skits--e.g batman and suerman life advice--- Movies and Series  ---  discuss celebritis, musicans and actors, thei back stories and opinions about movies and rreviews
   TenexDesigns - Finance - discuss bussines and people in hsitory and the bsuusines they didi
   
     
