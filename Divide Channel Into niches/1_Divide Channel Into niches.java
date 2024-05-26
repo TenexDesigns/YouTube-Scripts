@@ -1,9 +1,10 @@
-
-  TenexDesigns - Finance
-TenexDesigns - Motivation
-  TenexDesigns - ASMR
+TenexDesigns - ASMR motivation Motivation and improvemnet, and asmr motivation, 
   TenexDesigns - Pets
-  TenexDesigns - Movies and Series
+  TenexDesigns - Movies and Series  ---  discuss celebritis, musicans and actors, thei back stories and 
+  TenexDesigns - Finance - discuss bussines and people in hsitory and the bsuusines they didi
+  
+    
+    
     
 
     
