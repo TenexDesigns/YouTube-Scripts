@@ -49,4 +49,25 @@ Outro
 Thanks for joining me today! I hope this helped you understand some of the reasons why we experience stress. If you have any questions or tips for managing stress, leave a comment below. And don't forget to like and subscribe for more videos!
 
 
+
+
+  OUTLINE:
+00:00:00
+Stress in Our Lives
+
+00:02:00
+Big and Small Triggers
+
+00:03:59
+Body and Mind Under Pressure
+
+00:06:01
+Identifying Your Stress Triggers
+
+00:08:06
+Effective Coping Strategies
+
+00:09:55
+A Path to Managing Stress
+
   
