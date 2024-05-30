@@ -5,6 +5,15 @@ I have this idea of creating vs videos, this will be vidoes looking at two guys 
 
 Building on your idea of creating versus videos that compare and contrast different entities in a humorous and satirical manner, here are several more topic ideas that span a wide range of subjects, offering plenty of opportunities for education, humor, and engaging content:
 
+
+  UFC VS WWWE
+  REPUBLICN VS DEMOCRATIC
+  sAITAMA VS gOKU
+
+  KENDRIC VS DRAKE
+  TAILOR SWIFT VS RIHANAN
+  CRISBROWN VS QUAVO
+  
 1. **Coffee vs Tea**: Explore the cultural significance, health benefits, and taste profiles of coffee and tea, highlighting the differences in preparation methods and consumption habits across the globe.
 
 2. **Mac vs PC**: Dive into the ongoing debate between Mac and PC users, comparing software compatibility, hardware specifications, and user experiences, all in good fun.
