@@ -1,5 +1,7 @@
 Absolutely! Here are more fun and interesting dog-related video script ideas:
-
+why do dogs sniff buts, 
+  whu dogs chase cars,
+  why do gogs hate the mail man
 1. **Why Do Dogs Shake Their Toys?**
 2. **The Role of Dogs in the Military**
 3. **The Best Breeds for First-Time Dog Owners**
