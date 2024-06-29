@@ -1,4 +1,5 @@
 Absolutely! Here are more fun and interesting dog-related video script ideas:
+why dogs 
 why do dogs sniff buts, 
   whu dogs chase cars,
   why do gogs hate the mail man
