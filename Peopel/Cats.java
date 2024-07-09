@@ -1,3 +1,10 @@
+12 Dog Breeds That Originated in Africa
+   banned dogs
+
+
+
+
+
 Here are some video ideas for cat videos for YouTube:
 
 1. **Why Cats Chase Lasers**
