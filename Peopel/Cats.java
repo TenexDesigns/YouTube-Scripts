@@ -1,3 +1,13 @@
+https://www.youtube.com/@Feline_Fanatics
+https://www.youtube.com/@JawDroppingFacts
+
+
+0:35 / 5:02
+
+10 Scientific Ways to Get a Cat to Like You
+   
+14 Things You Do That Hurt Your Cat You Must Stop Doing!
+
 12 Dog Breeds That Originated in Africa
    banned dogs
 
