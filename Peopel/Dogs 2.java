@@ -1,4 +1,6 @@
 https://petkeen.com/most-popular-family-dog-breeds/
+https://www.webmd.com/fitness-exercise/default.htm
+
 
 Here are some more topics about dogs that you can make videos about:
 
