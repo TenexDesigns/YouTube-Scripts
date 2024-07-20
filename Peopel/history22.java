@@ -150,7 +150,89 @@ These ideas should provide a broad range of topics that can captivate and inform
 
 
 
+Yes, Jonny Harris is known for his in-depth explorations of complex geopolitical and economic issues on his YouTube channel. Here are some video ideas inspired by his style that delve into similar topics:
 
+### Geopolitical and Economic Issues
+1. **Why Does the Middle East Have So Much Oil?**
+   - Explore the geological and historical reasons behind the Middle East's oil wealth and its impact on global politics.
+
+2. **The Paradox of Venezuela: Oil-Rich but Economically Poor**
+   - Investigate why Venezuela, despite having vast oil reserves, struggles with economic instability and poverty.
+
+3. **Why Does Saudi Arabia Remain a Monarchy?**
+   - Discuss the historical, cultural, and political reasons behind Saudi Arabia's monarchy and its influence on the region.
+
+4. **The Rise of China: From Poverty to Global Power**
+   - Examine China's rapid economic growth, its strategies, and the implications for global geopolitics.
+
+5. **How Did the US Dollar Become the World's Reserve Currency?**
+   - Trace the history of the US dollar's dominance in global trade and finance.
+
+### Historical Conflicts and Current Tensions
+6. **The Israel-Palestine Conflict Explained**
+   - Provide a comprehensive overview of the historical roots, key events, and current status of the Israel-Palestine conflict.
+
+7. **North Korea and South Korea: A Divided Peninsula**
+   - Explore the history of the Korean Peninsula, the reasons for its division, and the ongoing tensions between North and South Korea.
+
+8. **The Japan-China Wars: A History of Conflict**
+   - Delve into the historical conflicts between Japan and China, including the Sino-Japanese wars and their lasting impact on relations.
+
+9. **The India-Pakistan Conflict: Kashmir and Beyond**
+   - Analyze the origins of the India-Pakistan conflict, focusing on the Kashmir dispute and other areas of tension.
+
+### State of Nations
+10. **How Britain Colonized Africa: The Scramble for Africa Explained**
+    - Explore the colonization of Africa by European powers, focusing on Britain's role and its long-term effects on the continent.
+
+11. **The Fall of the Soviet Union: Causes and Consequences**
+    - Investigate the factors leading to the collapse of the Soviet Union and its impact on global geopolitics.
+
+12. **The Economic Miracle of Japan: From Ruins to Riches**
+    - Discuss Japan's post-WWII economic recovery, its strategies, and the challenges it faces today.
+
+13. **Why Is Switzerland So Wealthy and Neutral?**
+    - Explore Switzerland's economic success and its long-standing policy of neutrality.
+
+### War and Conflict
+14. **The Syrian Civil War: Causes and Global Impact**
+    - Examine the origins of the Syrian Civil War, the key players involved, and its implications for the region and the world.
+
+15. **The Rwandan Genocide: A Tragic Chapter in History**
+    - Provide an in-depth look at the causes, events, and aftermath of the Rwandan Genocide.
+
+16. **The Gulf War: Operation Desert Storm**
+    - Detail the causes, events, and outcomes of the Gulf War.
+
+### Regional and Global Issues
+17. **The European Union: Unity and Challenges**
+    - Discuss the formation of the European Union, its goals, achievements, and the challenges it faces today.
+
+18. **The Amazon Rainforest: Environmental and Political Struggles**
+    - Analyze the environmental importance of the Amazon Rainforest, the threats it faces, and the political dynamics surrounding its preservation.
+
+19. **The Belt and Road Initiative: China's Global Ambitions**
+    - Examine China's Belt and Road Initiative, its goals, and its impact on global trade and geopolitics.
+
+20. **The Geopolitics of the South China Sea**
+    - Discuss the strategic importance of the South China Sea and the territorial disputes in the region.
+
+21. **The Impact of Climate Change on Global Migration**
+    - Examine how climate change is driving migration and its geopolitical consequences.
+
+22. **Artificial Intelligence: The Next Geopolitical Frontier**
+    - Explore how AI is shaping global power dynamics and the race for technological dominance.
+
+23. **The Future of the Global Energy Market**
+    - Discuss the shift towards renewable energy and its impact on global geopolitics and economies.
+
+24. **The Water Wars: Global Conflicts Over a Precious Resource**
+    - Discuss the growing conflicts over water resources and their geopolitical implications.
+
+25. **The Role of NATO in Modern Geopolitics**
+    - Examine the history, purpose, and current relevance of NATO in global security.
+
+These topics can captivate and inform your audience, offering deep dives into significant historical and contemporary issues.
 
 
 
