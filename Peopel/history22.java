@@ -1,3 +1,125 @@
+
+How Did Catholicism Start?
+   Greek mytholgy in 5 minutes ,
+   The dark ages explained
+
+Here are more video ideas similar to the ones you've mentioned:
+
+1. **How Did Protestantism Start?**
+   - Explore the origins and spread of Protestantism, focusing on key figures like Martin Luther and the Reformation.
+
+2. **Norse Mythology in 5 Minutes**
+   - A brief overview of the main gods, myths, and legends from Norse mythology.
+
+3. **The Renaissance Explained**
+   - An introduction to the Renaissance period, highlighting key figures, cultural shifts, and lasting impacts.
+
+4. **How Did Islam Start?**
+   - An overview of the origins and early spread of Islam, focusing on the life of Prophet Muhammad and the early caliphates.
+
+5. **Egyptian Mythology in 5 Minutes**
+   - A concise look at the main gods, myths, and beliefs of ancient Egypt.
+
+6. **The Enlightenment Explained**
+   - A summary of the Enlightenment period, its key thinkers, and how it shaped modern thought.
+
+7. **How Did Buddhism Start?**
+   - An exploration of the origins of Buddhism, focusing on the life of Siddhartha Gautama and the spread of Buddhist teachings.
+
+8. **Roman Mythology in 5 Minutes**
+   - A quick overview of Roman mythology, including major gods and key myths.
+
+9. **The Industrial Revolution Explained**
+   - An explanation of the Industrial Revolution, its causes, key inventions, and societal impacts.
+
+10. **How Did Hinduism Start?**
+    - A look at the origins and development of Hinduism, one of the world's oldest religions.
+
+11. **Celtic Mythology in 5 Minutes**
+    - A brief introduction to Celtic mythology
+
+   Sure! Here are more video ideas similar to those you've mentioned:
+
+1. **How Did Protestantism Start?**
+   - Explore the origins and spread of Protestantism, focusing on key figures like Martin Luther and the Reformation.
+
+2. **Egyptian Mythology in 5 Minutes**
+   - A quick overview of Egyptian mythology, including major gods and key myths.
+
+3. **The Renaissance Explained**
+   - An introduction to the Renaissance period, highlighting key figures, cultural shifts, and lasting impacts.
+
+4. **How Did Islam Start?**
+   - An overview of the origins and early spread of Islam, focusing on the life of Prophet Muhammad and the early caliphates.
+
+5. **Norse Mythology in 5 Minutes**
+   - A brief overview of the main gods, myths, and legends from Norse mythology.
+
+6. **The Enlightenment Explained**
+   - A summary of the Enlightenment period, its key thinkers, and how it shaped modern thought.
+
+7. **How Did Buddhism Start?**
+   - An exploration of the origins of Buddhism, focusing on the life of Siddhartha Gautama and the spread of Buddhist teachings.
+
+8. **Roman Mythology in 5 Minutes**
+   - A quick overview of Roman mythology, including major gods and key myths.
+
+9. **The Industrial Revolution Explained**
+   - An explanation of the Industrial Revolution, its causes, key inventions, and societal impacts.
+
+10. **How Did Hinduism Start?**
+    - A look at the origins and development of Hinduism, one of the world's oldest religions.
+
+11. **Celtic Mythology in 5 Minutes**
+    - A brief introduction to Celtic mythology, highlighting key gods and legends.
+
+12. **The Scientific Revolution Explained**
+    - An overview of the Scientific Revolution, its major discoveries, and its impact on science and society.
+
+13. **How Did Judaism Start?**
+    - An exploration of the origins and early history of Judaism, focusing on key figures and texts.
+
+14. **Japanese Mythology in 5 Minutes**
+    - A concise look at the main gods, myths, and legends from Japanese mythology.
+
+15. **The French Revolution Explained**
+    - A summary of the French Revolution, its causes, major events, and outcomes.
+
+16. **How Did Sikhism Start?**
+    - An overview of the origins and early development of Sikhism, focusing on the teachings of Guru Nanak.
+
+17. **Chinese Mythology in 5 Minutes**
+    - A quick overview of Chinese mythology, including major gods and key myths.
+
+18. **The Cold War Explained**
+    - An explanation of the Cold War, its key events, and the global tension between the US and the Soviet Union.
+
+19. **How Did Taoism Start?**
+    - A look at the origins and teachings of Taoism, focusing on figures like Laozi and texts like the Tao Te Ching.
+
+20. **Aztec Mythology in 5 Minutes**
+    - A brief overview of the main gods, myths, and beliefs of the Aztec civilization.
+
+21. **The Fall of the Roman Empire**
+    - Explore the reasons behind the fall of one of the greatest empires in history.
+
+22. **The Crusades Explained**
+    - A summary of the Crusades, their causes, major events, and consequences.
+
+23. **How Did Confucianism Start?**
+    - An exploration of the origins and teachings of Confucianism, focusing on Confucius and his impact.
+
+24. **Greek Philosophy in 5 Minutes**
+    - A quick overview of the main philosophers and ideas from ancient Greece.
+
+25. **The Black Death Explained**
+    - A detailed look at the causes, spread, and impact of the Black Death in medieval Europe.
+
+These ideas should provide a variety of engaging and informative content for your channel.
+
+   -----------------------------------------------------------------------------------------------
+
+   
 Creating videos on geopolitics, economies, and historical conflicts similar to Jonny Harris' style can be highly engaging and informative. Here are some video ideas along those lines:
 
 ### Geopolitics and Economies
